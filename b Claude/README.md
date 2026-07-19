@@ -1,9 +1,9 @@
-# CoS — Claude, the chief of staff
+# Claude — the chief of staff
 
-This folder is where **Claude**, the household's cross-system agent, lives in
-the vault. Claude is *externalized state, not a session* — memory, a deadline
-registry, and every weekly brief live in the `sandbox` repo; these two notes
-are the parts you touch.
+This folder (`b Claude`) is where **Claude**, the household's cross-system
+agent, lives in the vault. Claude is *externalized state, not a session* —
+memory, a deadline registry, and every weekly brief live in the `sandbox`
+repo; these two notes are the parts you touch.
 
 ## The two notes
 
