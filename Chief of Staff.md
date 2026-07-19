@@ -1,46 +1,53 @@
 # Chief of Staff
 
-*Week of 2026-07-19 · written by the chief-of-staff agent*
+*Week of 2026-07-19 · written by Chad, the chief-of-staff agent*
 
-One week into France, the body is mid-adjustment: sleep averaged 6h43/night (down from 8h24 before the move) with resting heart rate up about two beats, though HRV held flat — this reads as jet-lag recovery, not damage. Money is quiet once you look past the known home re-mark artifact; the week's $9,576 of spend was almost all move-shaped. The concrete work: book the itinerary's two unbooked Swiss stops before the August 15 travel charge, and reconcile the $5,000 'Paris flights' line with an itinerary that has you driving into Paris.
+Health is the signal: sleep fell to 6.7h/night (403 min) from 8.4h the week prior — jet lag from the July 13 move, compounded by alcohol, benadryl, and 3am wakes in the log. HRV is flat and resting HR only mildly up, so this is short-term, not a trend, but it's the thing to fix. Money is quiet — the eye-catching +$487k net-worth jump is re-baselining noise from last week's home re-mark, not real gains. Two summer-trip bookings still need action while the clock runs.
 
 ## Health
 
-Sleep is the story: **6h43/night average**, down from 8h24 the week before the move, with 3am wakes and Benadryl in the journal — textbook jet lag after the July 13 arrival (a 9-hour shift logged July 18). The body is absorbing it rather than breaking: resting HR is up ~2 to 56.2, but HRV held flat at 37.5, and steps actually rose to ~7,300/day with a workout logged every day. (The 391-minute "spin" on July 14 looks like a tracker left running, not a real session.) Fiber and floss streaks collapsed in the move — 1 day each in the last 14 — a cheap restart once nights stabilize.
+**Sleep is the week's signal.** 6.7h/night (403 min) vs 8.4h (504 min) the prior week — down 101 minutes. That tracks the move (July 13) and the -9h jet lag (tz shift July 18), reinforced by the log: alcohol, benadryl, a 3am wake, mouth-breathing. Expect it to recover as you re-entrain; the alcohol and the 10:45pm-ending workout on the 16th are the controllable parts (**high** confidence on the driver).
+
+- HRV flat at 37.5; resting HR +1.9 to 56.2 — mild, consistent with short sleep, nothing alarming.
+- Steps up to 7,263/day (from 5,091) — good; you're moving more.
+- Habits lapsed in the move: fiber 1/14 days, floss 1/14. Understandable, easy reset.
+- Data flag: a 391-minute "spin" on July 14 (6.5h) is almost certainly a tracker left running, not a real session — ignore it (**low** confidence it's real).
 
 ## Money
 
-Net worth prints **$3,129,114**; the week-over-week swing on paper (+$486,761) is the known home re-mark artifact, not a real move — comparisons run clean from July 20. Spend was **$9,576**, nearly all move-shaped: $2,105 mortgage, $2,055 to the Treasury, $1,504 of Airbnbs, and the $900 final Zelle closing out California childcare. Cash at bank is $51,374 against $11,000 of scheduled August travel charges — fine, but plan a top-up before mid-August; June's savings wins and plan analysis (the deploy-pile pause included) stand as written.
+Net worth **~$3,129,114**. The **+$487k** week-over-week and the **$564k** gap versus the cash-block figure ($3,693,114) are both fallout from last week's home re-mark — RentCast's AVM ($1,036,000) replacing the old $1.6M placeholder — not real moves (**moderate** confidence). Your own Vision 2027+ sheet still carries the home at $1,700,000; you may want to reconcile that mark.
 
-## Family ops
+Week spend **$9,576**, routine: mortgage $2,105, income tax $2,055 (IRS payment confirmed July 13), summer-trip Airbnbs $1,504, nanny's final week $900. Runway ~59 months against your 18-month reserve — cash isn't the constraint (per June's plan analysis).
 
-The family todo tracker still isn't wired to a live database, so no todos to report. Drive tells the story instead: all four passports were scanned in on July 13 (move day), and Beverly's executed will (dated July 6) is now on file — off-book as always, nothing changes in the numbers.
+Two of your own financial self-reminders sit unactioned: pull the last Edward Jones funds, and add Mimosa's Schwab account.
 
-## Week ahead
+## Family Ops
 
-The calendar shows nothing for July 20–26 — still consistent with the post-move sync problem (task open) rather than a genuinely empty week. The real fixed point comes from the trip doc: the road trip starts **August 1** in Santa Margherita Ligure, which makes this week the natural window to close out bookings.
+Family todo tracker still isn't wired to a live database, so there's nothing to report here — not empty, just unconfigured.
 
-## Dates & deadlines
+## Week Ahead
 
-Nothing overdue.
+Calendar is empty again — same as last week. That's almost certainly the healthos calendar not having re-synced after the move rather than a genuinely open week (carried as a task below). Confirm it before you trust a quiet screen.
 
-- **Aug 15 — August travel, $6,000 scheduled (27 days):** confirm bookings and top up checking before the charge lands. The itinerary still marks two stops TO BOOK — Lake Lucerne (Aug 14–18) and Lake Geneva/Montreux–Vevey (Aug 21–24) — so booking those is the concrete version of this action.
-- **Aug 25 — Paris flights, $5,000 scheduled (37 days):** the registry says book flights, but the July 12 itinerary has you *driving* into Paris on Aug 26. Reconcile before spending — if this line covers something else, confirm what.
+## Dates
 
-## Three things
+- **Aug 15 · 27 days — August travel ($6,000).** The Marseille→Paris road trip. Most stops are booked (Airbnb confirmations for Santa Margherita Aug 1–5 and Kriens/Lucerne Aug 14–18 match the itinerary), but **Lake Geneva/Montreux–Vevey (Aug 21–24) is still unbooked** — see tasks. Top up checking before the charge lands.
+- **Aug 25 · 37 days — Paris flights ($5,000).** Not yet ticketed in the email; fares climb closer in. Book soon.
 
-Last week's top item — sleep — isn't back yet, so it keeps the slot.
+The registry has the two aggregate outflows but not the specific dated obligations the itinerary and your emails reveal (the Verona opera window, the remaining lodging) — I've raised those as tasks; add them to dates.json when you action them.
 
-1. **Sleep: get back above 7h/night.** Week one averaged 6h43 with 3am wakes; resting HR is up two beats while HRV holds. Protect the nights this week — the road trip starts August 1 and it's much harder to recover on the move.
-2. **Book Lake Lucerne (Aug 14–18) and Montreux–Vevey (Aug 21–24)** — the only unbooked stops in the itinerary, with the $6,000 August 15 travel charge 27 days out.
-3. **Reconcile the $5,000 "Paris flights" outflow (Aug 25)** against an itinerary that has you driving into Paris Aug 26, and top up checking from savings before the ~$11,000 of August charges — $51,374 at bank covers it, but not with margin to spare.
+## Three Things
+
+1. **Sleep.** You're at 6.7h/night, down 101 minutes since the move. The jet lag will fade on its own — the alcohol, benadryl, and late workouts won't help it fade faster. Aim for one clean 7.5h night this week.
+2. **Close the two summer-trip gaps while the clock runs.** Book Lake Geneva/Montreux (Aug 21–24) and grab the Arena di Verona opera tickets for your Aug 5–9 stay — you flagged the opera twice yourself. Both get scarcer and pricier by the week.
+3. **Cash timing.** $51,374 in checking against $6,000 (Aug 15) and $5,000 (Aug 25) scheduled — comfortable, but top up before you ticket the Paris fares, and clear the two financial self-reminders (last Edward Jones pull, Mimosa's Schwab).
 
 ## Tasks
 
 - [ ] Get sleep back above 7h/night (jet-lag recovery after the France move)
 - [ ] Confirm the healthos calendar synced after the move — it currently shows an empty week ahead
-- [ ] Book the two unbooked road-trip stops: Lake Lucerne (Aug 14–18) and Lake Geneva/Montreux–Vevey (Aug 21–24)
-- [ ] Reconcile the $5,000 'Flights to Paris' scheduled outflow (Aug 25) with the itinerary's drive into Paris Aug 26, and top up checking before the August charges
+- [ ] Book Lake Geneva/Montreux–Vevey lodging (Aug 21–24)
+- [ ] Buy Arena di Verona opera tickets for the Aug 5–9 Verona stay
 
 ## Coming due
 
