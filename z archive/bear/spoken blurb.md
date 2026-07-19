@@ -1,0 +1,2 @@
+# spoken blurb
+Spoken blurb: Spoken helps shoppers save up to 50% and cut through confusion when buying furniture online. We connect identical furniture products across all retailers where they are sold, even when sellers disguise their products with new names and photos. 

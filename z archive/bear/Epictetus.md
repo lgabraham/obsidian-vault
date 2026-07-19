@@ -1,0 +1,4 @@
+# Epictetus
+Who then is invincible? The one who cannot be upset by anything outside their reasoned choice.
+
+#quotes

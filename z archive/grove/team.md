@@ -1,0 +1,4 @@
+
+Truly a bone headed move to press send on the above. I took feeling out of control on a tender issue in a stressful week and moment  out on y'all. It wasn't fair. I'm not proud of it. You deserve no names but noble honorifics. Your concerns are fair and valid. I appreciate that y'all promote (a) calling to discuss things person-to-person and (b) the norms of the HOA. Please allow me to eat my hat and recognize that, in the fashion of a child, I can lash out at those I feel safest with. 
+
+I'm going to cook my Aunt a birthday dinner now (crab + lamb!), as we're running behind schedule. Mimosa is taking point on this for the time being. My main interest is not delaying our list date. We are currently over schedule, and I hope to not lose a day more. Not your problem, per se. Just sharing where I am at with it.

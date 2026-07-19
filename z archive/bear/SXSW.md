@@ -1,0 +1,3 @@
+# SXSW
+
+Our flight left at 11:50am and was slated for 3:10p arrival. We were diverted from Denver for weather, though I know several other passengers who arrived in Denver the same afternoon. We received confusing and incomplete information. We were then stuck in Steamboat Springs from 3p until 9p. There was no food available. Candy snacks were delivered at 7p. We were headed to Vail. Steamboat springs was only a 90 min drive from Vail but we were not allowed to get our bags off the plane. So we flew to Denver for a 10:30 arrival, still 2 hours from Vail. We chose to get a hotel to not be unsafe on the road. 

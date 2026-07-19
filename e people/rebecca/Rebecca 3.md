@@ -1,0 +1,2 @@
+# Rebecca
+Hiya! A quick question for you. We are finalizing our loan documents today. (Yay!) We have one more small hiccup where Mimosa is Andre on the Title but lacks current identification to prove this. One means around the ID is “two credible witnesses” who can attest for Mimosa’s identity. Who more credible than y’all? Is there any world where y’all might be able to come with your CA IDs to vouch for her?

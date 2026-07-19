@@ -1,0 +1,1 @@
+Thinking is less useful than I thought. 

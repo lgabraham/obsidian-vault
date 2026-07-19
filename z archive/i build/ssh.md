@@ -1,0 +1,1 @@
+ssh node@node-m1

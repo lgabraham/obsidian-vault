@@ -1,0 +1,7 @@
+# Jordan
+Jordan, while I am mortified that I missed a chance to celebrate you with your friends and family via Zoom — I was working on a laptop in Naya’s dark room while she slept on my lap, not because she needed me more than I wanted to be with you on the Zoom, but because the chaos of caring for her while Mimosa was out divorced me from paying adequate attention to my calendar — I don’t want to spend words that could be better spent honoring you dwelling on my mistake. 
+
+You are a frontiersman and a founder, a deeply dedicated countryman, a good son, an intellectual and author. You are educated to the teeth by some of the finest minds and best institutions the globe has known. Even with all this training and sense, you have a heart joyful enough to ape into dogelon. Jewish Captain America isn’t high enough praise.  
+But praise isn’t what I write you with. I am grateful you are in my life, and honored to call you friend. (Even when I boneheadedly miss a Zoom to say this to your face.) I am proud of the man you are and also of the one you’re becoming. I plan to be with you all along the way, digesting what the world delivers us, even long after dogelon has mooned. 
+
+Happy 35th birthday. I love you, brother.

@@ -1,0 +1,3 @@
+# Money
+
+A set of hypotheses: (1) there is some non-zero dollar amount to transfer that is sufficient (even “optimal”) for them to support them being whole and happy adults; (2) that number is lower than we would guess, and also a function of our life circumstance, (3) nearly everyone here will clear the bar, (4) transferring much more than this number can _risk_ inhibiting their ability to fully become their own beings. And also (5) this is still important to talk about as parental fretting had a place. 

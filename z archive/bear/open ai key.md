@@ -1,0 +1,3 @@
+# open ai key
+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
+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

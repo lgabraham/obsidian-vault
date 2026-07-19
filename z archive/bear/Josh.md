@@ -1,0 +1,2 @@
+# Josh
+Guys, I fucked my back yesterday playing racket sports. Sitting hurts, a long car ride sounds unfun, and I’d like to rest it before the week starts. I’m sorry for being lame. 😞 I was looking forward to seeing you. Enjoy my wife and daughter. 

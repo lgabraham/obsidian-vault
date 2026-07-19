@@ -1,0 +1,2 @@
+# Grace
+Hey Grace! Loved the video you created about us (Spoken) 2 weeks ago on saving money on furniture. Would be awesome if it’d be possible for us to replicate your video on our page? We’d have our creator remake it and give you credit as well. BTW: Video was very well made!

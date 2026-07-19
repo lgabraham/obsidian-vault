@@ -1,0 +1,2 @@
+# Dane
+Conquered a “fear” at OT today. I had been running those 6:27s with “pulses” ie fast-slow-fast-slow. I’ve avoided keeping a consistent pace maybe for fear of the boredom. Today I kept 6:27 pace throughout and pushed at the end. I think I ended up running my fastest overall pace. Hate that. 😅 But now I have the confidence to do it, and am prepping my mind/behavior for a consistent mile. 💪

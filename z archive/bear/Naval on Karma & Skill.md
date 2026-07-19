@@ -1,0 +1,4 @@
+# Naval on Karma & Skill
+"Figure out what you’re good at, and start helping other people with it. Give it away. Pay it forward. Karma works because people are consistent. On a long enough timescale, you will attract what you project. But don’t measure—your patience will run out if you count."
+
+#quotes/naval

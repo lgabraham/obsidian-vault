@@ -1,0 +1,2 @@
+# Sam
+Sam, I have been thinking about the power of writing. We haven’t yet employed this tool. I wondered if there is an area of your professional responsibility that could use the clarity writing brings. I know you have valued writing in setting expectations for partnerships. I don’t want to give you undue homework. Yet if it sounds like an appealing exercise, I do think it might be productive for us. 

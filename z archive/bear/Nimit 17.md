@@ -1,0 +1,2 @@
+# Nimit
+Nimit, I enjoyed hearing of bits if your life, and sharing bits of mine. I am eager to find out if our time can be productive. I am committed to this task; I don’t take it lightly that you are as well. I’ll be in touch next weekend to propose a way forward. In the meantime, take care. Enjoy running. 

@@ -1,0 +1,2 @@
+# Jesse
+One of the boys asked about whether there would be preferential treatment for any investors / what would happen if y’all didn’t close the full round at $20M. Would you be open to an MFN SAFE, or is that too complicated?

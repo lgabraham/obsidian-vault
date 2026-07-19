@@ -1,0 +1,4 @@
+
+BOND is an event planning company in your area. They exclusively work with corporations to produce team-building activities and events for their employees. BOND offers a full suite of options ranging from outdoor adventure to volunteer work. BOND was founded by two former mid-market company employees who were often tapped to plan team-building events for their team. As they gained experience, they realized there was a market for team event production, and that the margins could be quite lucrative, given that corporations are willing to pay a high price point to outsource the planning of these events. In their first year, BOND focused on mid-sized companies local to your area. They built a lean website and kept marketing to a minimum, but demand grew quickly through word of mouth, generating regular business with mid-size companies in Year 1. By the end of Year 2, the number of events delivered grew 4x.
+
+ryanm@stripe.com

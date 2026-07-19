@@ -1,0 +1,2 @@
+# Boundaries
+Indeed, baby, if my pain continues at this rate, I will ask that you allow me to opt out of Pinecrest. It has been the 3rd straight day of “I can’t think straight” pain. My hunch is it is stress related, and the idea of  for the weekend is weighing on me. I am disappointed. I know you will be too. My body mind is asking me to rest. 

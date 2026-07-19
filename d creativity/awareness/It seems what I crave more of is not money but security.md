@@ -1,0 +1,2 @@
+
+Emotional, financial, physical (health)

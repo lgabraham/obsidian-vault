@@ -1,0 +1,18 @@
+# ENS Avatar
+Cosmicplay.eth
+Chain Runner 9344
+MetaMask
+
+eip155:1/erc721:0x97597002980134beA46250Aa0510C9B90d87A587/9344
+
+Swale.eth
+Humanoids 
+CB Wallet
+
+Lgabraham.eth 
+Encrypta 
+CB Exchange
+
+eip155:1/erc721:0x6391A41819C699972b75bF61db6B34ef940C96F0/2525
+
+0x773993AFc2BF799B63aed1b27896E16e47cC0b3F

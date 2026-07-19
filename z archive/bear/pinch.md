@@ -1,0 +1,2 @@
+# pinch
+All, after a sleep, I realize the “pinch” I was experiencing yesterday was primarily a result of my not clearly understanding how the fund would function. Now that I understand, I live in total trust that whatever is right for you is right for us. We are playing long games with one another, and this will be through many circumstances. Your word, your presence, and doing right by yourself is plenty sufficient for my total peace. Thank you for creating the space for the conversation, Marcin. Have great Fridays. 

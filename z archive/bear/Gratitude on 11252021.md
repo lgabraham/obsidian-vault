@@ -1,0 +1,2 @@
+# Gratitude on 11/25/2021
+I am also feeling grateful for this group. It is a  rare group thread that survives the GSB this long. With love and energy, no less. The thread, of course, is just a proxy for the group itself, which, as you point out, Jenn, is dynamic — each beautiful in our own way. Here is to decades of this American family, with or without the Nation State.

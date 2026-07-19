@@ -1,0 +1,3 @@
+# Matter
+
+Ben, I haven’t found the right time to speak with you on this. I would like to invest in Matter, if you would allow me to. I don’t care about round, price, etc. It would be a small dollar value ($5K) — way more than makes sense given my total wealth, as I am no VC.  I could wire it anytime. My only reason for wanting this is to be more invested in your journey. It is less about the investment and more about the relationship I would like to have with your journey — Taleb’s “skin in the game”. I believe in what you are doing, categorically — taking career risk, building something you want built, and expressing who you are via a company. I’m sure you have much to do. Please prioritize this as appropriate. 

@@ -1,0 +1,1 @@
+No need to feel bad about fantasizing. Enjoy pleasure. Enjoy the fantasy. It isn’t real. 

@@ -1,0 +1,4 @@
+# Wisdom
+The measure of wisdom is how calm you are when facing any given situation.
+
+#quotes/naval

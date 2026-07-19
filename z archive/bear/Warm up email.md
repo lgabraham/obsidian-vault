@@ -1,0 +1,2 @@
+# Warm up email
+[How to Warm Up an Email Account Before Sending Cold Emails](https://www.saleshandy.com/blog/warmup-email-account/#:~:text=The%20email%20warm%20up%20is,number%20of%20emails%20each%20day.)

@@ -1,0 +1,2 @@
+# Levers
+My father told me “work smart, not hard”. Use tools when tools could amplify my output. Some tools are better than they ever have been — with far more reach. Moreover, others are using them to great effect in the online game. 

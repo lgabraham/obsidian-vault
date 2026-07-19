@@ -1,0 +1,2 @@
+# prompt
+**logo for investing business, includes water, tribal, eastern, chinese, sacred, enlightenment, acension, spiritual, elegant, clean, minimal, black and white, vector —v 4 —stylize 999 —s 20000 —q 2 —upbeta —v 4 —s**

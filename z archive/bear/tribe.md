@@ -1,0 +1,2 @@
+# tribe
+In truth, before you, was hard to imagine this group improved. Yet your belonging here, and your patent upgrade to who we are is clear as day. May you be in your free-est element these days gliding down gorgeous mountains, surrounded by love you’ve made. 

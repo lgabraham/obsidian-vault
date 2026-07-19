@@ -1,0 +1,2 @@
+# Product description
+Re-write the below product description without using the product’s name. Mention all other product details. Includes high-volume, low-competition keywords related to the product category. Do this in the voice that is cheeky, direct, carefree and optimistic.  

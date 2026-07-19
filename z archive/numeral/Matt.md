@@ -1,0 +1,2 @@
+
+Hey Matt, I chatted with my cofounder, Dane, about the possibility of working with you and Sam and about the problems as I understood them. We’re both game for a call with y’all. Tomorrow, Thursday, or Friday would be best. Thanks. 

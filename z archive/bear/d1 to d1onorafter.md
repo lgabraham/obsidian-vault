@@ -1,0 +1,2 @@
+# d1 to d1onorafter	
+Here is our historical D1 “on” retention against our D1 “on our after”. The net result is that, more or less, we end up retaining 2.45x the number of people that come back “on” D1. I weighted the numbers by total users.

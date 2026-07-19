@@ -1,0 +1,2 @@
+# BAA SW Visa
+I have replaced my payment on my Apple account with  the new  SW Rapid Rewards cc…. want to earn those points 😃 I don’t know if you need the info for the card when doing the “family” connected things…. card ends in 4359  exp 4/26  security code 252.  Let me know if you need the whole number.  I will bring Geoff’s card when I come… to replace using the costco cc for charges.  I  also added it to my Amazon account…. i’ll have points in no time!!! 🙄🤗💜

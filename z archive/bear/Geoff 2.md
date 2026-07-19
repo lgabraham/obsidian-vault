@@ -1,0 +1,43 @@
+# Geoff
+Geoff Ralston
+July 16, 2021
+
+Two-line Pitch
+Shopify for Service Professionals—an easy way for professionals, like stylists and handymen, to build their own modern website, take payments, and leverage their referral networks.
+
+Requested Topic:
+1. How will we fail? 2. Brief take on our distribution strategy. 3. Sounding board on fundraising.
+
+Other YC companies who we might talk with
+Pitfalls in this domain
+Ideas around distribution
+Geoff R: Stylists are too conservative...
+
+Must make a product where the LTV is high, friction is low...
+
+Geoff R: Must get 10 stylists who love you… 
+Geoff R: If it’s not clear that they will make more money, then they don’t care.
+
+Geoff R: The real challenge is to think you have PMF… when you don’t...
+We have one thing where the users will cry out...
+Scheduling, payments… ?
+Geoff R: This will be the a thing.
+
+Geoff R:  What is the set of circumstances to make this happen with Spoken?
+How easy, cheap, cool, etc.
+Geoff R: Get three different service professions to love you...
+Personaln trainers, 
+Go after the 3-4 people who care… forget the rest for now.
+
+Demo Day
+Defer to another demo day?
+Or figure out everything thing about we need to get to 1000s of users…
+The pitch
+This is enviable…
+Small % uses software today…
+It’s enviable that they will all have software…
+
+Geoff R: Recommendations...
+This is going to be really hard…
+But might be a huge outcome if we win…
+When talking with investors and customers… pay attention to their answer, not their reasons.

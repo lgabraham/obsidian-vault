@@ -1,0 +1,4 @@
+# Rugs
+We know how specific the dimensions on your new rug need to be, especially in that new shoebox-sized studio. We also know shopping can be tricky when you need a particular size and style at a specific price. So check out these AllModern rugs that have petit sizes and spruce up your space with a modern touch — all while saving some money. 
+
+Design your NYC apartment to reflect your personality. You don’t need large format rugs to make a statement. View AllModern checkered and southwestern rugs for a creative touch. A pop of color in the form of an accent rug can add much to a smaller area. You know you don’t have to overpay to make your apartment stylish. We’ve found the perfect rugs to fit your unique apartment at the best possible prices online.

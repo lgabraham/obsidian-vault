@@ -1,0 +1,2 @@
+# Product Image
+[Adesso Home 3338-15 Transitional One Light Floor Lamp from Hamptons Collection in Bronze/Dark Finish, 65 in](https://www.spoken.io/products/floor-lamps/amazon_adesso-home-3338-15-transitional-one-light-floor-lamp-from-hamptons-collection-in-bronze-dark-finish-65-in/49be8660-5e63-4ed7-aaa2-a1b190a42ad3/9e0881db-46d5-4379-a360-342f0c68e5eb)

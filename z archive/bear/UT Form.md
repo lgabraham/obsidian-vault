@@ -1,0 +1,2 @@
+# UT Form
+Hey I’m Geoff. I graduated from UT in 2008 in Plan II. I started a pedicab business in San Francisco in 2010, and sold it in 2020. I received a Stanford MBA in 2018. My startup, Spoken (YC S21), is building better online furniture shopping. My cofounder and I met in the honors dorms at UT.

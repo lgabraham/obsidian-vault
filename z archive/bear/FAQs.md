@@ -1,0 +1,2 @@
+# FAQs
+Can you please reprint these FAQs so that they all appear in the same format? Also, where the FAQs are semantically too similar to another FAQs (essentially duplicates), please omit the less impactful FAQ, and only include the best version.

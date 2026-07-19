@@ -1,0 +1,4 @@
+# Spoken TikTok	
+Hi there! I made a website that reveals where you can find furniture, even when sellers have renamed items.
+
+Aneeqa! Hello! I came across you when seeing your video on the Wayfair liquidation store in Texas — great find! I became obsessed with Wayfair after I found out that they have a whole team dedicated to renaming furniture (taking new photos, etc.) so that they can charge more. It turns out lots of stores do this with furniture specifically. I made a website that shows anyone who goes to it all the places they can find the exact same item — even when a store renamed it. I have never written a message like this. But if you are open to sponsored content, I would be interested in having such a conversation with you. Our site could be a great tool for your followers. I’m just trying to spread as much awareness about it as I can right now. Thank you for reading! Geoff

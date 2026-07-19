@@ -1,0 +1,2 @@
+# Naya
+Naya literally just double fisted 2 squares of chocolate (parenting lesson for me), then on her own put Satori on my phone, got her tye dye shirt, and started dancing (shirtless bc while she wanted her other shirt off, she didn’t want help putting this one on). She self-guided into a sugar-high rave about 30 years before I did. 

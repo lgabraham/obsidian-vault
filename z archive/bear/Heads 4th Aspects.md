@@ -1,0 +1,2 @@
+# Heads 4th Aspects
+To unlock hidden fourth Aspects, you'll first need to unlock the final Aspect on Varatha the spear, the Aspect of Guan Yu. To do so, you'll need to unlock the Fated List of Minor Prophecies, unlock five different weapon Aspects, reach (not defeat) the final boss, and speak with Achilles until he discusses the "true nature" of your weapons. Note that you need to unlock Aspects; upgrading the basic Aspects which are already available will not work. You can unlock the Aspects of any weapon.

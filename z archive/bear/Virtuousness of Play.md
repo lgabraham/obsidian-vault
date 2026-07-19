@@ -1,0 +1,2 @@
+# Virtuousness of Play
+[The virtuousness of adult playfulness: the relation of playfulness with strengths of character | Psychology of Well-Being | Full Text](https://psywb.springeropen.com/articles/10.1186/2211-1522-1-4)

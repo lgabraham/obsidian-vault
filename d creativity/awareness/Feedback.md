@@ -1,0 +1,1 @@
+My own internal sense of joy and meaning is the best source of feedback, doesn’t mean being internal 

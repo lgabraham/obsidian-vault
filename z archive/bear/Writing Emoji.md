@@ -1,0 +1,11 @@
+# Writing Emoji
+✍️🦿 🔨/ 📐🌎
+🙃
+🤹❓
+🐘 🧘 
+🧩 ☺️
+
+Useful
+♟🪨🌎🔨⚙️⚒🪞🏴‍☠️
+
+#writings

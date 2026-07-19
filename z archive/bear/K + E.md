@@ -1,0 +1,4 @@
+# K + E 
+I’m going to edit in the doc later. To start: this is excellent. The moments of humor had me in stitches and punctuate the overall beauty and depth. 
+
+In my opinion, the best way for you to improve what is already here is to add more from you, Noel. Maybe you have your own story about them. Or maybe you touch on your unique view on their strengths. (The strengths themselves are clear.) Your voice add can add rich color. I know if may feel awkward to put your voice in the ceremony — you’re trying to be “official” yet they chose you for a reason. I think the ceremony only benefits from brief, genuine, emotional language from you. 

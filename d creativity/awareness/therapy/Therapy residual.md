@@ -1,0 +1,3 @@
+- relationship with work
+- anxiety over own pleasure
+- massage

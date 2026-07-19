@@ -1,0 +1,1 @@
+# Optimism is a moral duty

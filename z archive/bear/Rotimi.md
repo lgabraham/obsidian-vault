@@ -1,0 +1,2 @@
+# Rotimi
+What magic. I was brought to tears twice, once with almost embarrassing intensity. I was delighted. I learned. The setting was surreal. You, my friend, set the mood impeccably and brought us into play. I intend to hype this to the heavens. I will write a note to a WA group of 100 of my Bay Area classmates today. Wonderful to see (and play with!) you. We are having a baby shower / house warming the 2nd weekend of July if you are free to join. . More on this soon. 

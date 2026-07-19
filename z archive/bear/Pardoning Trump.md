@@ -1,0 +1,2 @@
+# Pardoning Trump
+The new president explained that " [someone must write the end](https://www.historyplace.com/speeches/ford.htm) " to this "American tragedy," noting that "only I can do that." Putting aside "the ultimate fate of Richard Nixon," Ford worried about "the immediate future of this great country."   

@@ -1,0 +1,2 @@
+# Girard 
+To be clear, what I like most about the explanation of us arriving from murderous apes is that it emphasizes how far we have come — the power of dreaming ourselves into being, welcoming this new version of us, which simply becomes real. To know such deep and mutual love among dreaming apes is a gift I cherish. To celebrate the epic dreaming ape that is Ben in such company, better still. 

@@ -1,0 +1,3 @@
+# Lisa
+
+Lisa, I have a question for you. I’m having a bachelor party in Austin April 8th-10th. I’m not really sure what it means to have a bachelor party. I’d like mine to be about bonding and learning. My college mentor will moderate a discussion on masculinity on Saturday. I wondered if you would find it interesting to host (read: be present for) a simple taxes ama. We could have the group (12-16) submit questions before hand and keep it simple. I think my crew would eat this up, and we would all have fun. What do you think? Too weird? Austin weird? More importantly, would you be open to or interested in this?

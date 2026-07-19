@@ -1,0 +1,4 @@
+# Stonks
+$COLD
+$GTY
+$NNN

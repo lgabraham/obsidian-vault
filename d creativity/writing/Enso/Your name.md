@@ -1,0 +1,2 @@
+
+Mine is a rich history. My grandfather immigrated to this country from a broken land with a dream of stability and love. I have his name. Sometimes, this name felt like a burden. I wished to give you my name and also give you freedom.

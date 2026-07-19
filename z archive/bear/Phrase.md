@@ -1,0 +1,2 @@
+# Phrase
+=SUBSTITUTE(textjoin(“, “,true,IMPORTDATA(concatenate(“https://api.semrush.com/?type=phrase_fullsearch&key=e82701d7419f13d965571b0fa80651f3& &export_columns=Ph&phrase=“,D2,”&database=us&display_limit=5”))), “Keyword, “, “”)

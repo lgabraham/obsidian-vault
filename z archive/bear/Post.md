@@ -1,0 +1,2 @@
+# Post
+A friend’s: children should take the mother’s name by default. Stage mother bares more burden. This was convention before the 9th century when The West began treating women as their husband’s property, and the renaming denoted ownership.

@@ -1,0 +1,2 @@
+# Kendra
+Hi Kendra! I’m Geoff. I’m building a website that shows where exact furniture is sold across the internet. Please feel free to make use of the site to find deals. Would you ever consider allowing me to sponsor one of your posts? I know how to build things but not how to spread the word. I want to be respectful of your effort and audience. Folks who use the site love it. I’d guess your followers might, especially. Please let me know how you would think about this. Thanks! And happy hunting!

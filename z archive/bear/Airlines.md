@@ -1,0 +1,3 @@
+# Airlines
+
+Don’t even get me started with airline miles. Status-game for midwits seeking distraction from the self-hate inflicted by their job? No thank you. How do they even work any way? Inflation rate greater than Argentina. A shapeshifting rat-race puzzle room hinging on the phases of the moon with a deeply unserious prize. Real adults pay for plane tickets because they want to go somewhere, not because they gathered some self-referential gold stars. 

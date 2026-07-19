@@ -1,0 +1,1 @@
+# Even though I yearn for financial freedom, the riches of my life are not counted in dollars

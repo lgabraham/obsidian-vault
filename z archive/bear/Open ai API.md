@@ -1,0 +1,2 @@
+# Open ai API
+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

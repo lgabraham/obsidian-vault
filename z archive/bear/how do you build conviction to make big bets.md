@@ -1,0 +1,1 @@
+# how do you build conviction to make big bets?

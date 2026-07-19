@@ -1,0 +1,6 @@
+# TV Stands
+A contemporary living room is well-planned, simple, and balanced. Simple furniture and modern art combine to create a fresh, inspired, and inviting space. Get the best deals on fabulous living room styles from AllModern; shopping through Spoken helps you compare prices to find the best possible deals. 
+
+AllModern excels at putting a creative, contemporary twist on classic wooden furniture. So, when shopping for a lovely new TV stand for your living room, you can look to AllModern for fashionable & exciting statement furniture for your living room. Then, when your friends and family ask where they can find a TV stand or media console like yours, you can tell them that it’s an AllModern piece at a Spoken price! 
+
+Spoken compares prices on the same pieces of furniture across retailers online, and we help you make sure that you’re getting the best sales, deals, and discounts on AllModern TV and media stands. From mid-century modern styles with lots of lines to chevron-patterned wood grains, AllModern has some seriously cool TV stand styles for your living room!

@@ -1,0 +1,3 @@
+The Property is a detached rear structure (a converted former horse barn behind the front Victorian) and is subject to a variance granted by the SF Planning Department on October 8, 2024 (Case No. 2021-012822VAR). A Notice of Special Restrictions (NSR) has been recorded against the Property in connection with the variance. Buyer is advised to review the recorded NSR and Final Variance Decision Letter for the specific conditions and restrictions applicable to the Property.
+
+There is a 98 square foot shed on the South side of the property. The shed is in the City plans. I used this space as an office, but I do not know if the space is deemed "livable".

@@ -1,0 +1,2 @@
+# Google Ads Credit
+Hi all! I understood myself to be signing up for $500 of credit if I paid $500 in ads. I don't see the credit on my account and I'm getting worried it wasn't mapped to my account. Perhaps it was mapped to another of my accounts? Can you please assist? 

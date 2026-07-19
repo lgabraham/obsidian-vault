@@ -1,0 +1,6 @@
+# World Market
+Talented artisans around the world lovingly craft World Market rugs. If you love eclectic decor inspired by different cultures & styles, then you know that you can always depend on World Market for the most stylish, traditional decor for every room of your house. 
+
+We too are inspired by the styles from World Market. They remind us of a trip through the local marketplace in another country & make us feel connected to the artistic design of each piece. Rugs from World Market are perfect for world travelers & creative souls who dream of wandering the world. The past couple of years has made us realize the importance of feeling uplifted, even at home. World Market’s lovely designs can help! 
+
+Naturally, you care about investing in the work of the artisans and home decor that makes you smile. Beautiful artisan-made rugs are unique and often cost a pretty penny. So, you never shy away from a good deal. Spoken has you covered there. We’ve searched high and low online to find the best deals on fabulous World Market rugs (and they’re all right here!)

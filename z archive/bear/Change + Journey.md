@@ -1,0 +1,2 @@
+# Change + Journey
+I needed to separate to evolve. This seems natural and important. Is all evolution the same? I now feel that I can evolve **with** my life, that all is integrated. Does a need for separation mean this seems impossible? Or is there a one-time separation (child to adult) where this is definitional, and then integrated evolution follows? 

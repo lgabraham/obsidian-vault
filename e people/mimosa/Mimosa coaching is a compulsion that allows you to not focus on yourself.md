@@ -1,0 +1,1 @@
+# Mimosa: coaching is a compulsion that allows you to not focus on yourself

@@ -1,0 +1,2 @@
+# Dane feedback
+I’ve been thinking more about owning my intro, and what you are sending. I spent some time this weekend updating my beliefs, and considered more deeply how this project can feel as we succeed. I do have some self work to arrive at the confidence this company deserves. I’m game for it. 

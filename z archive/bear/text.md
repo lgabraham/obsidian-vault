@@ -1,0 +1,2 @@
+# text
+I thought I had it all figured out. But that all changed when I had made a visit to my local library a few months ago. As I was doing my history homework, I noticed a little hint from the corner of my eye. There was a teenager, probably a few years younger than me, walking alongside his mom. He was holding a white book over his head and proudly announced, “I found it!

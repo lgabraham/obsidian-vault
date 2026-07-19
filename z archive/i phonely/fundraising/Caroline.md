@@ -1,0 +1,54 @@
+- High level goal is how can we (together) build out a reasonable projection of the next 12 months (through end of 2026)? What does this imply in where you need to invest in team/sales/channel resources?
+	- Currently investing into visibility and repeatability of sales
+- Projected live ARR end of Oct?
+	- $1.7m-$2.4m depending on closes today
+- Confirming Current Customer Revenue and Expansion
+    - EngageCX
+        - Signed MRR: $3K
+        - Current MRR: $25K - what month did they expand?
+        - Expansion Potential: $120K - over what time period
+    - Rigrev
+        - Signed MRR: $2K
+        - Current MRR: $6.5K - October
+        - Expansion Potential: $20K? 
+    - TSA
+        - Signed MRR: $1.8K
+        - Current MRR: $10K - October
+        - Expansion Potential: $120K?
+    - With
+        - Signed MRR: $6K
+        - Current MRR: $5K - downgrade? what month?
+        - Expansion Potential: Still $15K or unlikely?
+    - MFA
+        - Signed MRR: $8.6K
+        - Current MRR: $8.4K - downgrade? what month?
+        - Expansion Potential: Still $12k?
+    - Health Insurance
+        - Signed MRR: $2K
+        - Current MRR: $4K - October
+        - Expansion Potential: $120K?
+    - Medicare OS - is this the same buyer as above or totally separate?
+        - Signed MRR: $4.1K
+        - Current MRR: $10K - what month?
+        - Update: expansion to ~$20k MRR for November
+    - Stay Home Senior Services
+        - Signed MRR: $2.5K
+        - Current MRR: $500K - downgrade? what month?
+        - Expansion Potential: N/A or back to $2.5K?
+    - OfficeHQ
+        - Signed MRR: $100?
+        - Current MRR: $2.2K - what month?
+        - Expansion Potential: $40K?
+- Other Large Potential Expansions
+    - Quest Health
+    - Vacatia 
+    - Cellphone Sandbox
+    - Etech
+    - Qualfon
+- Any others in pipeline new or that I missed? (will share screen and show you what I have live)
+	- Vocus ($1.5m)
+	- One Mnet Health ($480k)
+- Walk through contract structure and how the billing function works (e.g. how you calc and when you charge for usage over the contracted value)
+- Other
+    - Any data points on sales efficiency today? How many leads are coming from channel partners? What does this tell you about where to hire/invest in?
+    - Talk through your thoughts on continuing to build out differentiation, what that looks like from your perspective vs. Phonely’s perspective?

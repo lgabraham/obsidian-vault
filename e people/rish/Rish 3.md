@@ -1,0 +1,2 @@
+# Rish
+Even though will to power is a compelling concept. I take life’s longing for itself is greater than any individual will to power. No matter how powerful, a will will be survived by the collective (as America survived George Washington). 

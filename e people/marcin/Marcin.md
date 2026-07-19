@@ -1,0 +1,3 @@
+# Marcin
+
+Florence has always been a special place for me. My family didn’t travel. On my first solo backpacking trip, now 15 years ago, this City was my favorite. So much romance. And the food. This particular spot, with its view, was most precious of all. When I visited, the clerics in the temple were chanting. The sun was setting. The world seemed beautiful, mysterious, full of possibility. It makes perfect sense I get to revisit the view this morning, for a quiet introspective moment, on the eve of wedding you to the woman you love. Game on. 

@@ -1,0 +1,9 @@
+# Prompt engineering
+
+Write me a store description of XX. Emphasize the store’s style in their furniture offerings. Use these style words and their synonyms. Include on visual metaphor based on . Includes high-volume, low-competition keywords. Write less than 100 words total. Do this in the voice that is cheeky, direct, carefree and optimistic.
+
+Write me a store description of West Elm. Emphasize the store’s style in their furniture offerings. Use these style words and their synonyms:minimalist, modern, luxury.Use active voice and this verb:uplift. Include on visual metaphor based onnature. Includes high-volume, low-competition keywords. Write less than 100 words total. Do this in the voice that is cheeky, direct, carefree and optimistic.
+
+Write me a store description of West Elm. Emphasize the store’s style in their furniture offerings. Use these style words and their synonyms:minimalist, modern, luxury. Use active voice and this verb:uplift. Include on visual metaphor based on nature. Includes high-volume, low-competition keywords. Write less than 100 words total. Do this in the voice that is cheeky, direct, carefree and optimistic.
+
+Write me a description of West Elm’s dresser. Write from the perspective of a professional design marketplace that helps shoppers find their best buying options. Use the words ‘their’, ‘they’, and ‘them’ rather than ‘we’, ‘our’, or ‘us’. Emphasize the store’s style in their furniture offerings. Include at least 3 high-volume, low-competition keywords related to furniture, but don’t tell me what they are. Use these style words and their synonyms: minimalist, modern, luxury. Use active voice and this verb: uplift. Include on visual metaphor based on nature. Write less than 125 words total. Do this in the voice that is cheeky, direct, carefree and optimistic.

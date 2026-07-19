@@ -1,0 +1,4 @@
+# Micah - thank you
+I’m genuinely upset at how good this gift is. I have worn the other watch nearly every day since you’ve given it to me. Mimosa: “this one won’t match your tan line.” So much so that I have come to really like the feel and style. So much so that I forgot that I LOVE the Mido style. And now that it is on my wrist, it is clear that my former life of cycling through reusable $60 watches is blowing-dudes-for-coke levels of ratchet, and my current life is coke-off-of-hookers-asses-mid-WAP. These two watches may be some of my most prized items, and if anything else, because they represent our friendship. 🤮 Thank you, Micah. Call me when you’re able so you can gloat and I can grovel further. 😘
+
+#draft

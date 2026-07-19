@@ -1,0 +1,4 @@
+# Erin Avalon
+I do want to pause a moment to fully appreciate Erin. What angel could endure a game of Avalon as partner to Khalid? (Especially in the beginning.) More than endure, flourish, and introduce the game to her own family. Then to be an anchor to this crew.  And to become a titan in her own right and still surprise the one who knows her best, formidable King himself, Khalid, on the anniversary of their wedding day with a Merlin Escape, the hardest in the biz. Even without referencing your partnership (which is epic on its own and worth more words than this), Erin, I think I’d count you most improved here. It has gotten harder to read you, not easier, for me. Kudos to you. And happy (belated) birthday. 
+
+#draft

@@ -1,0 +1,2 @@
+# Hayward
+Santa Hayward! Thank you! I am forever ride-or-die. That intro/outro graphic is so good! The setting was totally surreal and gorgeous. (Did you climb down a ladder at the end?) Such fun. You tap into your own rhythm. So many hidden gems you made look smooth yet I know meticulously and intentionally placed — for example, “I hope she does not know that”. Nearly no errors in delivery. 

@@ -1,0 +1,8 @@
+# Mihir
+-One reason sellers might work with us is that we drive purchases. Home Depot, for example, offered us an affiliate contract this week. Makers may also eventually want to be on our platform. We’ve spoken of an easy API for selling on our site for D2C brands. We are more interested in a transaction model than affiliate or commissions, though.
+
+-While furniture is an abysmal market to sell in, we think it is the right place to start for our value proposition, i.e. connecting items even when they have been renamed. The broader category of home furnishings, which includes appliances and home decor represents 12% of ecommerce. Other categories we have spoken of: medical devices, tools, mattresses, drugs.
+
+-Furniture is fulfilled by the seller with all warranties, etc. included w/ the sale. We may include other services on top of the sellers, like financing, insurance, etc. One reason the customers will close the loop on Spoken is that we will streamline the otherwise archaic checkout process at legacy retailers. You will be able to purchase several items from several sellers with one easy flow. We’ll also protect you from the marketing emails that would follow.
+
+-Liquidity would likely take the form of an acquisition (think Paypall’s acquisition of Honey for $4B). We are also very open to exploring, after many controlled trials, token offering, as the users have thus far shown enthusiastic interest in maintaining the system.

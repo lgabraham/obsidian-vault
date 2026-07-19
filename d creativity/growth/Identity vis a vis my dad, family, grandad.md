@@ -1,0 +1,1 @@
+I often feel bad when I think of myself in *comparison* to them. It happens without me knowing. What if I felt good when I thought about my relationship with them?

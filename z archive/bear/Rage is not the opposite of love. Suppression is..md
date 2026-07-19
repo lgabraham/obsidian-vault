@@ -1,0 +1,1 @@
+# Rage is not the opposite of love. Suppression is.

@@ -1,0 +1,6 @@
+# Pottery Barn rewrite
+You love Pottery Barn, but you're not sure you Love Pottery Barn's prices. You've been eyeing that Pottery Barn rug for months, but the price just doesn't seem to be budging. But Pottery Barn rugs aren't always expensive- in fact, you can find Pottery Barn rugs at different prices all across the internet. The products are identical; the prices are not. We're on a mission to help show you your best buying options. 
+
+We've scoured the internet for the best deals on Pottery Barn rugs. We've found that Pottery Barn rugs are typically cheapest on third-party websites like Wayfair and Amazon. However, Pottery Barn often runs deals and promotions that make their rugs more affordable as well. The best way to find the cheapest Pottery Barn rug is to do a little bit of research and compare prices from different websites. 
+
+We know that Pottery Barn rugs can be a great addition to any home. And we want to help you get the best deal possible on your Pottery Barn rug purchase. So happy hunting- and don't forget to check back with us for more great deals on Pottery Barn products!
