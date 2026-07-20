@@ -1,0 +1,1 @@
+node scripts/add-plaid-token.mjs access-production-5db36fee-1a7b-4d3b-93f4-e7b8c134744d "Schwab (Mimosa)"
